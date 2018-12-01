@@ -7,3 +7,8 @@ Rebecca :)  https://github.com/rubyrox
 
 Yu-Jin keyboardbreaker :eggplant:
 
+
+Name: Alexandra Pascal Username: alexandra-pascal 
+
+Yu-Jin keyboardbreaker :eggplant:
+
