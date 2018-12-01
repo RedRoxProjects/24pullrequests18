@@ -2,4 +2,4 @@
 
 A nice place meet new people :sparkles:
 
-KhuyenLeThiMinh github.com/lethiminhkhuyen :flowers:
+KhuyenLeThiMinh github.com/lethiminhkhuyen
