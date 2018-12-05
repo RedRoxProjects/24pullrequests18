@@ -2,6 +2,8 @@
 
 A nice place meet new people :sparkles:
 
+Rodrigue - @Rodrigue-k
+
 Name: Leah :sparkles:
 
 Sam - starsuit :star:
