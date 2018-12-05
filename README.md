@@ -3,6 +3,8 @@
 A nice place meet new people :sparkles:
 
 
+deewanstudios  :ok_hand:
+
 niamhmccoo/24pullrequests :snowflake:
 
 RebeccaAR :star:
