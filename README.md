@@ -2,6 +2,8 @@
 
 A nice place meet new people :sparkles:
 
+RebeccaAR :star:
+
 Name: Tom Hodson :sparkles:
 Github handle: TomHodson91 :sparkles:
 
