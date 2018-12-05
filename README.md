@@ -2,6 +2,8 @@
 
 A nice place meet new people :sparkles:
 
+Name: Leah :sparkles:
+
 Sam - starsuit :star:
 
 deewanstudios  :ok_hand:
