@@ -1,11 +1,25 @@
 # 24pullrequests18
 
+A nice place meet new people :sparkles:
 
 Name: Leah :sparkles:
 
-A nice place meet new people :sparkles:
+Sam - starsuit :star:
 
-Yu-Jin keyboardbreaker :eggplant:
+deewanstudios  :ok_hand:
+
+niamhmccoo/24pullrequests :snowflake:
+
+RebeccaAR :star:
+
+Name: Tom Hodson :sparkles:
+Github handle: TomHodson91 :sparkles:
+
+Benedict ChangingMind :relaxed:
+
+KhuyenLeThiMinh github.com/lethiminhkhuyen
+
+learesong :pouting_cat: 
 
 Name: Alexandra Pascal Username: alexandra-pascal 
 
