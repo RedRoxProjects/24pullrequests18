@@ -1,7 +1,9 @@
 # 24pullrequests18
 
-
 A nice place meet new people :sparkles:
+
+Name: Tom Hodson :sparkles:
+Github handle: TomHodson91 :sparkles:
 
 Benedict ChangingMind :relaxed:
 
